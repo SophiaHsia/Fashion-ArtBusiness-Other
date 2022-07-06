@@ -176,7 +176,7 @@ Among all of these areas, the **luxury personal goods** has become **core of cor
 - Success comes from retail.
 ### Spotlight on Chinese consumers
 ![[Pasted image 20220706195751.png]]
-- self-realisation, value identification
+- self-realisation, value identification,
 - 1.4 billion domestically customers
 - key question: how to prioritize the strategies for multiple consumer groups?
 - 
